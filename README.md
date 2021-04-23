@@ -1,1 +1,0 @@
-# bigQRcode3aupin
